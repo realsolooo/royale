@@ -1,4 +1,4 @@
-# royale
+# fem proxy
 i rlly dont care wht u do with ts, just dont try and skid it i stg 😭
 
 # Configuration
